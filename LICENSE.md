@@ -1,4 +1,4 @@
-
+Experience shrink for brainrots like never before with shrink for brainrots rare Script, the #1 Script. Includes teleport and esp for unbeatable
 
 
 
